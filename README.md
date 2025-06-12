@@ -47,7 +47,7 @@ I am a firm believer in continuous learning and am always looking to expand my s
 
 I am always open to discussing new projects, creative ideas, or opportunities to be part of an ambitious team. Feel free to reach out to me through any of the following channels:
 
-* *Phone:* +234...
+* *Phone:* +2348161299594
 * *WhatsApp:* [+2348161299594](https://wa.me/2348161299594)
 * *LinkedIn:* [Silas Idowu](https://www.linkedin.com/in/silas-idowu-9516a0246/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3Bnl1PxvyIRNWvGYdQskpmkA%3D%3D)
 * *Twitter:* [Silas Idowu](https://x.com/silasico_id)
